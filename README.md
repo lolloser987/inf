@@ -1,1 +1,1 @@
-# inf
+-- Removed for copyright
